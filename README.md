@@ -1,0 +1,2 @@
+# ilki
+Klon edeceyim lahiye
